@@ -1,0 +1,6 @@
+👋 Hi, I’m @theshashwatj
+- 👀 I’m interested in Learning new things...
+- 🌱 I’m currently learning Python...
+- 📫 How to reach me via :
+- 1) - Linked In - https://www.linkedin.com/in/theshashwatjain/ 
+- 2) - Email - est.query@gmail.com 
